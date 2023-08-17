@@ -1,0 +1,2 @@
+El español o castellano es una lengua romance procedente del latín hablado, perteneciente a la familia de 
+lenguas indoeuropeas. Forma parte del grupo ibérico y es originaria de Castilla, pelo medieval de la península ibérica. 
